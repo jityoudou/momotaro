@@ -6,4 +6,8 @@ birth
 
 kibidango get
 
+funatabi
+
+oni satsugai
+
 happy end
