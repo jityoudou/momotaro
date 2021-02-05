@@ -4,7 +4,7 @@ donburako
 
 birth
 
-oziiiiiiisann take take take
+oziiiiiiisann shiba take take
 
 obaasan dango kone kone 
 
