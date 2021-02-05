@@ -4,6 +4,10 @@ donburako
 
 birth
 
+oziiiiiiisann shiba take take
+
+obaasan dango kone kone 
+
 kibidango get
 
 funatabi
