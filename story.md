@@ -8,6 +8,10 @@ kibidango get
 
 funatabi
 
-oni satsugai
+dog attack
+monkey attack
+kiji attack
+
+oni wakarase
 
 happy end
