@@ -18,4 +18,6 @@ FULL CHAIN
 
 oni wakarase
 
+takara get
+
 happy end
